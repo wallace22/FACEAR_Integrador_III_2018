@@ -1,0 +1,1 @@
+Colocar nesta pasta o artefato referente a entrega ou uma versão parcial do documento com o item a ser entregue.
