@@ -28,3 +28,7 @@ Grupo 12 - Daniel Toledo e Gabriel Cardoso
 Grupo 13 - Ricardo Nicoleti e Levi
 
 Grupo 14 - Wolney Hadas
+
+Grupo 15 - Juliana
+
+Grupo 16 - Alisson Viana e Thyago Buch
